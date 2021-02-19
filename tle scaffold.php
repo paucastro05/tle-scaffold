@@ -40,7 +40,6 @@ GROUP 1 Pauleen Castro, Princess Oliveros, Ellien Pacilan, Roxanne Terante, Kimb
 <br>Or would there still be a hope for us.</br></p>
 
 
-
 </center>
 </body>
 </html>
